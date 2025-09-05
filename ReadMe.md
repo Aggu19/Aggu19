@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Pursing Bsc in Software Engineering (CMU)<br>
+🔭 Bsc in Software Engineering (CMU)<br>
 
 
 ## 🌐 Socials:
